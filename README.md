@@ -1,4 +1,4 @@
-# Hi, I'm Aree Sha Usmani 👋
+# Hi, I'm Areesha Usmani 👋
 
 🚀 **BTech Graduate | Workflow Automation Enthusiast | Python & ML Practitioner**
 
